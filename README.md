@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Engabdalbagihendad 
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning information systems and apps devloper
-- 💞️ I’m looking to collaborate on buillt apk,ios and wf app in on programming languege
+- 💞️ I’m looking to collaborate on buillt apk,ios and wf app in one programming languege
 - 📫 How to reach me here is my gmail abdalbagihendad@gmail.com and my whatsapp is +967779550301
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
